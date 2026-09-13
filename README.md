@@ -1,4 +1,4 @@
-# Hi there, I'm Sri! 👋
+# Hi there, I'm Hema SriLakshmi Aalla! 👋
 
 🎓 **AI & Machine Learning Graduate** | 🤖 **Deep Learning & Data Science Enthusiast**
 
